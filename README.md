@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Google-320
-- 👀 I’m interested in ...
+- 👀 I’m interested in ... Technology
 - 🌱 I’m currently learning ...Data Scinces and AI/ML
 - 💞️ I’m looking to collaborate on ... Startup's
 - 📫 How to reach me ... ha2942151@gmail.com
